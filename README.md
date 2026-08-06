@@ -5,3 +5,4 @@ Prazer, meu nome é **Samuel da Silva Soares**. Atualmente estou cursando **Téc
 
 - 🎓 <a href=https://www.linkedin.com/in/samuel-da-silva-soares-b22719426/ target="_blank">Linkedin</a>
 - 📌 [sam.soares5000@gmail.com](mailto:sam.soares5000@gmail.com)
+- 📍[Instagram](https://www.instagram.com/samuka.139?igsh=MXM4bTk2YjEwMXRzeg%3D%3D)
